@@ -1,2 +1,2 @@
 # startup-of-the-yr
-https://www.youtube.com/watch?v=inpok4MKVLM
+https://shunji15.github.io/startup-of-the-yr/
